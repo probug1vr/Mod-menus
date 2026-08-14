@@ -1,1 +1,1 @@
-You may get banned so if you do its not my fault and i will try to update the link once the creator update the mod menu 
+You may get banned so if you do its not my fault and i will try to update the link once the creator update the mod menu remember to enable anti ban and anti kick and rpc blocker in saftey if you ever need help join the discord in gun.lol
